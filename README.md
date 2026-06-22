@@ -9,3 +9,7 @@ Deliverables Summary
 Written Rationale & Ai Tools
 
 2 Walkthrough Videos for each prototype
+
+
+22.06.2026 - Nada Amro
+https://www.loom.com/share/9754b5fd31af4a96908edd3f31f32e0f
